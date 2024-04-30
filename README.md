@@ -3,4 +3,4 @@
 - 🌱 I’m currently learning how to keep yourself in always a learning phase.
 - ⚡ Fun fact: ⚽ Football + 🎮 League of Legends + 🎮 PUBG + 🎥 Watching movies + 💻 Coding (Always)
 
-LONG LIVE CODERS.
+LONG LIVE CODERS ☕☕🚬🚬.
